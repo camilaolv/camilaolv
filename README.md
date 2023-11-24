@@ -7,4 +7,4 @@ _Mas você pode me chamar de Mila_
 
 • Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 💻
 
-![](https://images.app.goo.gl/jVUFzLrhNCXcnoY78)
+![](https://images.app.goo.gl/jVUFzLrhNCXcnoY78) !
